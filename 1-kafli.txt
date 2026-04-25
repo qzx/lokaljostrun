@@ -325,7 +325,7 @@ Knóttu vanir vígspoð
 völlu sporna."
 
 
-"Þá varð að enn einu þakamóti míns herra. 
+"Þá varð að enn einu þakamóti míns herra... 
 
 "Þá gengu reginn öll
 á rökstóla.
@@ -335,3 +335,441 @@ hverir hefði loft allt
 Lævi blandit
 eða ætti jötuns
 Óðs mey gefna."
+
+
+
+"Þórr einn þar vas
+þrunginn móði.
+Hann sjaldan sitr,
+es hann slíkt of fregn.
+Á gengusk eiðar,
+orð ok særi,
+möl öll meginlig,
+es á meðal fóru."
+
+
+
+"Veit hón Heimdallar
+hljóð of folgit
+undir heiðvönum
+helgum baðmi.
+Ó sér hón ausask
+örgum forsi
+af veði Valföðrs.
+Vituð ér enn eða hvat?"
+
+
+
+"Ein sat hón úti,
+þá es aldni kom
+Yggjungr ása
+ok í augu leit.
+Hvers fregnið mik?
+Hví freistið mín?
+Allt veit ek, Óðinn,
+hvar þú auga falt:
+í enum mæra
+Mímisbrunni.
+Drekkr mjöð Mímir
+morgin hverjan
+af veði Valföðrs.
+Vituð ér enn eða hvat?"
+
+
+
+"Valði henni Herföðr
+hringa ok men,
+- fé, - spjöll spaklig
+- ok spá ganda
+sá hón vítt ok of vítt
+of veröld hverja. -"
+
+
+
+"Sá hón Valkyrjur
+vítt of komnar,
+til goðþjóðar.
+Skuld hélt skildi,
+en Skögul önnur,
+Gunnr, Hildr, Göndul
+ok Geirskögul,
+- nú eru talðar
+Nönnur Herjans, -
+görvar at ríða
+grund valkyrjur."
+
+
+
+"Ek sá Baldr,
+blóðgum tívur,
+Óðins barni,
+örlog folgin.
+Stóð of vaxinn,
+- völlu hærri, -
+mjór ok mjök fagr
+mistilteinn."
+
+
+
+"Varð af þeim meiði,
+es mær sýndisk,
+harmflaug hættlig,
+- Höðr nam skjóta,
+en Frigg of grét
+í Fensölum, -
+vóð Valhallar.
+Vituð ér enn eða hvat?"
+
+
+
+"-- Baldrs bróðir vas
+of borinn snimma,
+sá nam Óðins sonr
+einmitt vega,
+þótt hann æva hendr
+né höfuð kembði,
+áðr á bál of bar
+Baldrs andskota, --"
+
+
+
+"Haft sá hón liggja
+undir hvera lundi,
+- lægjarn líki, -
+Loka áþekkjan.
+Þar sitr Sygin
+þeygi of sínum
+ver vel glýjuð.
+Vituð ér enn eða hvat?"
+
+
+
+
+"Ó fellr austan
+of eitrdala
+söxum ok sverðum.
+Slíðr heitir sú.
+Stóð fyr norðan
+á Níðavöllum
+salr ó gulli
+Sindra ættar,
+en annarr stóð
+á Ókólni,
+bjórsalr jötuns,
+en sá Brimir heitir."
+
+
+
+
+"Sal sá hón standa
+sólu fjarri
+Náströndu á.
+Norðr horfa dyrr.
+Fellu eitrdropar
+inn of ljóra.
+Sá es undinn salr
+orma hryggjum."
+
+
+
+
+"Sá hón þar vaða
+þunga strauma
+menn meinsvara
+ok morðvargar
+ok þann annars glepr
+eyrarúnu.
+Þar súg Niðhöggr
+nái framgengna.
+Sleit vargr vera.
+Vituð ér enn eða hvat?"
+
+
+
+"Austr sat en aldna
+í járnviði
+ok fæddi þar
+Fenris kindir.
+Verðr af þeim öllum
+einna nökkurr
+tungls tjúgari
+í trolls hami."
+
+
+
+
+"Fyllisk fjörvi
+feigra manna,
+rýðr ragna sjöt
+rauðum dreyra.
+Svart varð á sólskin
+of sumur eftir,
+veðr öll válynd.
+Vituð ér enn eða hvat?"
+
+
+
+"Sat þar á haugi
+ok sló hörpu
+gýgjar hirðir,
+glaðr Eggþér.
+Gól of hónum
+í gaglviði
+fagurrauðr hani,
+sá es Fjalarr heitir."
+
+
+
+"Gól of ósum
+Gullinkambi,
+- sá vekr hölða
+at Herjaföðrs, -
+en annarr gelr
+fyr jörð neðan
+sótrauðr hani
+at sölum Heljar."
+
+
+
+
+"Geyr Garmr mjök
+fyr Gnipahelli.
+Festr mun slitna,
+- en freki rinna, -
+-- fjölð veit hón fræða,
+fram sé ek lengra
+of ragna rök, --
+römm sigtíva."
+
+
+
+
+"Bræðr munu berjask
+ok at bönum verða,
+munu systrungar
+sifjum spilla,
+hart es í heimi,
+hórdómr mikill,
+skeggöld, skalmöld,
+- skildir ró klofnir, -
+vindöld, vargöld,
+áðr veröld steypisk.
+Mun engi maðr
+öðrum þyrma."
+
+
+
+
+"Leika Mímis synir,
+en mjötuðr kynndisk
+at, - enn gall ó, -
+Gjallar horni.
+Hótt blæss Heimdallr.
+Horn es á lofti.
+Mælir Óðinn
+við Mímis höfuð.
+Ymr at aldna tré,
+en jötunn losnar.
+Skelfr Yggdrasils
+askr standandi."
+
+
+
+
+"Geyr Garmr mjök
+fyr Gnipahelli.
+Festr mun slitna,
+- en freki rinna, -
+-- fjölð veit hón fræða,
+fram sé ek lengra
+of ragna rök, --
+römm sigtíva."
+
+
+
+
+"Hrymr ekr austan,
+hefisk lind fyrir.
+Snýsk jörmungandr
+í jötunmóði
+Ormr knýr unnir,
+en ari hlakkar,
+slítr nái neffölr.
+Naglfar losnar."
+
+
+
+"Kjóll ferr austan,
+- koma munu múspells
+of lög lýðir, -
+en Loki stýrir.
+Fara fífls megir
+með freka allir.
+Þeim es bróðir
+býleifts í för."
+
+
+
+
+"Hvat es með ósum?
+Hvat es með ölfum?
+Gnýr allr Jötunheimr.
+Æsir ró á þingi.
+Stynja dvergar
+fyr steindurum,
+veggbergs vísi.
+Vituð ér enn eða hvað?"
+
+
+
+
+"Surtr fer sunnan
+með sviga lævi.
+Skínn af sverði
+sól valtíva.
+Grjótbjörg gnata,
+en gífr rata.
+Troða halir helveg,
+en himinn klofnar."
+
+
+
+
+"Þá kömr Hlínar
+harmr annarr fram,
+es Óðinn ferr
+við úlf vega,
+en bani Belja,
+bjartr, at Surti,
+- þá mun Friggjar falla angan, - týr."
+
+
+
+"Þá kömr enn mikli
+mögr Sigföðr,
+Víðarr, vega
+at valdýri.
+Lætr hann megi Hveðrungs
+mund of standa
+hjör til hjarta.
+Þá es hefnt föður."
+
+
+
+
+#### Additional Hauksbók:
+
+"Ginn loft yfir
+lindi jarðar.
+Gapa ýgs kjaftar
+orms í hæðum.
+Mun Óðins sonr
+ormi mæta
+vargs at dauða
+Viðars niðja."
+
+#### END
+
+
+"Þá kömr enn mæri
+mögr Hlöðynjar.
+Gengr Óðins sonr
+við úlf vega.
+Drepr hann af móði
+Miðgarðs véurr.
+Munu halir allir
+heimstöð ryðja.
+Gengr fet níu
+Fjörgynjar burr
+neppr frá naðri
+níðs ókvíðnum."
+
+
+
+# Þegar siglt er af stað erum við hér.
+"Sól tér sortna.
+Sígr fold í mar.
+Hverfa af himni
+heiðar stjörnur.
+Geisar eimi
+við aldrnara.
+Leikr hór hiti
+við himin sjalfan."
+
+
+
+# Sagan byrjar svo hér
+"Sér hón upp koma
+öðru sinni
+jörð ór ægi
+iðjagræna.
+Falla forsar.
+Flýgr örn yfir,
+sá es á fjalli
+fiska veiðir."
+
+
+
+"Finnask æsir
+á Iðavelli
+ok of mildþinnur
+máttkan dæma
+ok ó fimbultýs,
+fornar rúnar."
+
+
+
+"Þar munu eftir
+undrsamligar
+gullnar töflur
+í grasi finnask,
+þærs í árdaga
+áttar höfðu."
+
+
+
+
+"Munu ósánir
+akrar vaxa.
+Böls mun alls batna.
+Baldr mun koma.
+Búa þeir Höðr ok Baldr
+Hrópts sigtoftir
+vel valtívar.
+Vituð ér enn eða hvað?"
+
+
+
+
+"Þá kná Hænir,
+- hlaut við kjósa, -
+ok byrir byggja
+bræðra tveggja
+vindheim víðan.
+Viðtuð ér enn eða hvat?"
+
+
+
+
+"Sál sér hón standa,
+sólu fegra,
+gulli þakðan
+á Gimléi.
+Þar skulu dyggvar
+dróttir byggja
+ok of aldradaga
+ynðis njóta."
+
+
+#### Alls ekki Hauksbók 57 þar sem guð almáttugur er kynntur til sögunnar og reynir að binda Ask örlögum aftur og skapa óðinn á ný!
+
+
+"Þar kömr enn dimmi
+dreki fljúgandi,
+naðr fránn, neðan
+níðit fjöllum.
+Berr sér í fjöðrum,
+- flýgr völl yfir, -
+Níðhöggr nái.
+Nú mun hón sökkvask."
+
