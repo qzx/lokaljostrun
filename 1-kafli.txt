@@ -1,0 +1,337 @@
+I. Endurkoma
+
+
+Að morgni dags sást land rísa úr sjó. Mær stendur á dekki og virðir fyrir sér þá fögru sjón, eftir langa för í opnum knarr. Gróið og grænt, gætt fögrum fjöllum og fossum. Ernir fljúga um himna og hafið fullt af fiski. Hið nýja heimili ætt hennar getur af haft. Hún mælir, að hálfu út í loftið en að hálfu að manni þeim er aftan við hana situr, þungur á brún, djúphugsi. "Sjá ástin mín, vér höfum mætt vonum okkar, land og líf á ný". Maðurinn ei svarar, brúnin svo þung að von nægir ekki til að létta á henni. þyngri enn er feldur sá er hann klæðir, svart, loðinn, af miklum birni kominn. Reginsfeldur mikilla manna, því minni menn ei gætu staðið uppréttir honum klæddir. Frú hans, hin fagra mær, klædd lítt léttari klæða úr litaðri hör, samhaldið af leðurólum og drepin þéttofinni silki skikkju frá Austri. Hún mælir senn "Minn kæri, hver er ólgan sú er hefur þig undir, þér mætið ei yðar nýja heims?" og gengur til síns mans og við hlið hans tekur sæti.
+
+"Heimur allur horfinn er og að engu ég orðinn er, hvað hefur ég gjört?" mælti hann móðr við sína mær, og hún svarar. "Maðr minn mikli, gjört höfir þér það er allir menn af mikils meini mönu gjöra, svo og er ég hef þér sagt. Hafir yðir þó gleymt hvurnig spá sú fer, sem um mikla menn er?" hljómur raddar hennar ofin þráðum samúðar og skilnings. Voninni sterkari nær hún að létta á brú hins mikla manns er hann mær sína leggur augum og svarar "Ekki er víst að gleymt ég geti því mín kæra sem ei hef skilið, viljuð þér visku þína á ný mér færa og brúa bilið." Það var þá sem hinn útlægi maðr, fallni lávarðr hvurs alls hefur tapað og lagt leið sína til Thule sér til björgunar frá lífláti er móttækilegur visku sinnar konu. Ei blindaðr af þekkingu og vissu meir, tvíeygður og djúpsýnn á ný, ei óður maður lengr.
+
+Kvá hún þá "Ef munið þér eigi ginningar verk skal ég þér of segja ljóstrn, þvá tími ginninga runninn er áftir rökkr ragna. Kvæði mín er þú áðr hefir heyrt skal ég á þig minna svo át þú í þeim þig sjálfan mátt finna." Hún lagði þá arm sinn yfir axlir síns mans, framundan land og að baki stórsegl dregið. Vinnumenn voru að verki við róðr og viðhald húsdýra og skiptu sér eigi af. "Manstu þá stund ei svo löngu liðna þegr mestur þú varst, ég til þín kallaði og reyndi að ná á hlust. Máli mínu til mýkingar og almenns eðlis spáarinnar til haga ávarpaði ég þig fyrst sem alla menn. Því allir menn eru varnarlausir. Svo sem alla háborna menn. Því allir hábornir menn eru berskjaldaðir. Svo sem þeir hábornu af okkar húsi. Því þeir eru viðkvæmir. Svo loks sem þitt mikla sjálf. Því mestir menn eru fyrir óðnum veikburða. Þegar athygli þinni ég hafði náð bauðst ég til að leggja fyrir þig þá fornu visku er óður maður þarf að heyra. Manstu?"
+
+Þá kvá hann.
+
+"Hljóðs bið ek
+allar kindir,
+meiri ok minni
+mögu Heimdallar.
+Vildu, at ek, Valföðr,
+vel fyr telja
+forn spjöll fira,
+þau es fremst of man"
+
+
+"Minn kæri, þú manst, en höfir þú þegar skilið?" svarar hún og heldur áfram "Þér sagði ég af öðrum hábornum, af öðrum eldri ættum, svo at þér mynduð skilja hvur þér væruð. Hvur ég væri. Hvur vér værum öll, vér hábornu. Af þeim erum vér komin er heiminn í sig vilja hafa, úr honum eta og af honum miklast. Hvernig þú sérð aðra sem eru af sama meiði ok sjálfur er en eigi getur í þeim sjálfan þig séð. Ég sagði þér af þeim níu ættum hvers hús ég hef í gengið. Miklar hallir þeirra skræddar útsaum og sögum forna. Hvu djúpt rætur verandi háborinna nær, þær vaxa í tíma og sífellt herða tökin. Landeignir þeirra og staða djúpt grafin í jörðu og landi því er við erum af komin"
+
+Aftur svarar hann.
+
+"Ek man jötna
+ár of borna,
+þá es forðum mik
+fædda höfðu,
+Níu man ek heima,
+níu í viði,
+mjötvið mæran
+fyrir mold neðan."
+
+
+II. Fæðing
+
+Völvan mælir þá "Í þennan heim fæddist þú svo mín ást. Áðr þú hefir vetur lifað varstu sjálfs þekkjandi og nægur. Þitt saklausa sjálf vár nafn gefið áftir ymjan þina er þú kunnir ei tal manna né ginningar. Hvernig þú lékst þér í á ströndinni við hafið, í bárum og brimi án þess að kunna þeirra getið. Skreiðst um á jörðu og horfðir til himins, en ei nöfn hefðir fyrir. Án ginnunga varstu þá, og lékst þér í grasinu er ekki skorti en ei þú vissir hvað ætti að heita. Án blekkinga var þinn hugr og af einlægni þinn hamr. Fylgjur ei ornar og hamingjan þín."
+
+ok Ýmir svarar
+
+"Ár var alda
+þar es Ýmir byggði,
+- vasa sandr né sær
+né svalar unnir,
+jörð fansk æva,
+né upphiminn,
+gap var ginnunga,
+en gras hvergi, -
+
+Völvan segir þá "Þegr þig tók at eldast fórst þú föðr þinn að þekkja, og sjálfan ik sem sonu. Þá var svo gjört at bundin þú varst, stunginn illum þyrnum skulda háborinna ætta. Af þeim bindingum þíns kyns komu fram í þér sterkir hamr. Sá fyrsti var af bræði þinni borinn, sá næsti af mætti þínum og sá síðasti af þínni réttlættu tilvist. Þá ei lengur var rými fyrir ými og sakleysi þínu varpaðir þú upp í ginnungar. Landit, tad er ætt yðr yfir réð leist þér á sem þinn eigin líkami. Ok kallaðir Miðgarð. Landið skildir þú sem þitt eigið hold, sjæ sem þitt eigið blóð. Björgin sem þín eigin bein, tréin sem þitt eigið hár ok himinn sem þitt höfuð. Skýin þinn heili, steinar þínar tennur ok sæseltu þinn svita. Svo mikils var áf þér ætlast ástin mín at þú taldir þig trú um að heimr vor værat allur af þér kominn. Þá hefðir þér gleymt at þú af heim manna ert kominn. Hamr þinna huga var ólgan. En þú ert maðr mikill bóndi minn, en öllum er hætt þar er óðurinn ræður ríkjum. En óðinn bregst ei í fyrstu ok var á þeim tíma heimurinn af þér, frá þér og fyrir þig."
+
+Vé lítur þá út yfir hafið, með yl í hjarta og söknunar bros til hálfs er hann minnist sinnar mikilmennsku ok kveður
+
+"áðr Búrs synir
+bjöðum of yppðu,
+þeir es Miðgarð
+mæran skópu.
+Sól skein sunnan
+á salar steina.
+Þá var grund gróin
+grænum lauki."
+
+Mærin láir manni sínum stundu til at njóta minnga sinna. Þrem andartökum síðar lútir hann höfði og lítur kvonu sína á. Brosir hann til fulls, og hefr hún orðið á ný. "Æi meir af undrum heims blöstu við þér lambið mitt. Sólina hefr þú séð til suðrs, og förunaut hennar mánan. Ferðir þeirr þú raktir með þinni hægri hendi í bóg eftr himni, ok mikið jódýr fyrir þér þú sást í fingrum yðar. Hvurs þér taldi skyldi draga sól ok mána yfir himinn. En þú skildir ekki verkan sólarinnar, áttavísan stjarnanna né kraft hins mikla tungls."
+
+Vili mælti þá
+
+"Sól varp sunnan,
+sinni mána,
+hendi en hægri
+of himinjó, dýrr.
+Sól þat né vissi,
+hvar hún sali átti.
+Stjörnur þat né vissu,
+hvar þær staði óttu.
+Máni þat né vissi,
+hvar hann megins átti."
+
+III. Til vits
+
+Frigg heldur þá áfrm "Það þótti þér ekki nægilegt fyrir eins mikinn mann ok þig, þó enn drengur væri. Hóf þá hefð sú er hefr þig til ávalt haft at falli, er þér setjist við djúpa þanka ok hugr þínir ræða hvurnig má heim undir stjórn leggja. Fyrsta þanka þing var ei svo hættum borit at á þig hefr komit er þér komuð fyrst valdi á hreinar ginningar. Er ei má á benda, eingöngu í hug má þær þekkja. Afurð fundar var vald yðar á tímum dags en úr varð fljótt spunnið síðar meir. Nóttinni þú gafst nafn, morgni, miðdegi og tímana rás var þá á þínu bandi. Þó eigi af þér skapað, þá af þér komið svo at þér ku trúa at það er þér gefið nafn sé af yður skapað"
+
+Brosið rennur af manni hennar og kunnulegt glott glætir á ok Ódinn mælir.
+
+"Þá gengu reginn öll
+á rökstóla,
+ginheilög goð,
+ok of þat gættusk,
+- nótt ok niðjum
+nöfn og gófu,
+morgin hétu
+ok miðjan dag
+undorn ok aftan,
+órum at telja."
+
+"Þú og frændur þínir eydduð dögum ykkar með verkamönnum okkar landa. Lærðuð að smíða ykkur hörg úr grýti, og hof úr timbri háu. Lærðuð at leggja afla ok stál smíða. Auð þér lærðuð að skapa, tangir og önnur tól. Dagar ykkar voru fullir af undri og nýverki. Það var í þá daga er yður uxuð úr grasi og brátt myndu vera menn."
+
+Glottið rennur til baka og í ham Vés segir
+
+"Hittusk æsir
+á Iðavelli,
+þeir es hörg ok hof
+hótimbruðu,
+afla lögðu,
+auð smíðuðu,
+tangir skópu
+ok tól görðu."
+
+"Það var þó einn dag er þið lékuð ykkur að tafli á túninu, höfðuð hvorn annan, ykkar spil og vantaði fyrir ekkert. Hamingja og gleði meðal frænda og vina að leik. Gull vantaði yðr ei, ek því svo margt var það at fá. Því ei var vönt fyrir slíka málma. Þannig var það þar til dag þennan, er þrjár hábornar mær frá löndum fjarri áttu mót með yðar kyni. Framandi og glæsilegar, slík undir þið hefið aldrei áður séð. Muni þær klæddu er voru skini sóli líkastir, klæðnaður, föruneyti og fjarsjóðir þeirra svo mikilfengleg að þinn litlu hugur brást. Sögur af fjarlægum ættum, þeirra handverk og þeirra hugverk. Svo fanginn voru yður af heimsókn þeirra hæstbornu at Miðgarðr of lítill var. Nú er sögr hafir heyrt úr Jötunheimum. Ávalt hafir yður verið í nöp við þá er bera hlutverk þitt utan Miðgarðs."
+
+Vili tekur undir
+
+"Teflðu í túni,
+teitir vóru,
+- vas þeim vettergis
+vant ór gulli, -
+unz þrjár kvómu
+þursa meyjar
+ámáttkar mjök
+ór Jötunheimum."
+
+
+IV. Ungi prinsinn
+
+"Þat var þá er þitt annað þing var setið í hug þínum. Þá valt þú fyrir þér hvurnig þú mættir af þeim sögum þursa þitt varða. Þá hafir þú takið borgríki fólks og þau í verknað sinn smættað. Þá er fólk hefir af þér smættað verið í verkan sína eður fararátt kallið þér þau dverga. Ekki skipti fyrir yður hvur maður er þá smíðar hand eður hugverk dverganna, þá er verkið er að fá, má þar dvergur vera. Þá næst var þér í hug að velja hvaða höfum á knarr skal sigla, um ár hverjar skal róa ok land hvert undir fót skal leggja. Af því lagðr þú til at heim allur er þér þekkið skul vera yðar, dvergar þar á meðal. Þankar þínir höfðu afurð þá að menn þú sendir til at dverga þessa vitja ok sambönd við þá byggja."
+
+Glottið snýr á ný og Óðinn mælir
+
+"Þá gengu reginn öll
+á rökstóla,
+ginnheilög goð
+ok of þat gættusk
+hver skyldi dverga
+drottin skepja
+ór Brims blóði
+ok ór blóm leggjum"
+
+Mærin, vitandi að brátt mun óðurinn minnast stórveldis síns og hafa tal aftur á öllum þeim viðskiptasamböndum er hann hefur efnt til. "Fremstur fannst þér auðvitað sá hvers hugvit gat virkilega dregið fram þitt, en þú manst væntanlegan eftir þeim öllum. Þá máttu ei gleyma þeim er þínir menn mættu í bardaga. Sannarlega lofar hinn mikli óði maðr þá! Sá óðinn er ei getur mælt framandi mál ok nafn gefur þeim eftir ham þeirra er í hug þér er."
+
+Óðinn rennur glotti sínu yfir til gláps og virðir fyrir sér nýja lendu sína er hann minnist frænd ok fjand, þjóðr ok borgir er eitt sinn dverga kallaði.
+
+"Þar vas Mótsognir
+mæztr of orðinn
+dverga allra,
+en Durinn annarr.
+Þeir manlíkun
+mörg of görðu
+dvergar ór jörðu
+sem Durinn sagði.
+
+Nýi ok Niði,
+Norðri ok Suðri,
+Austri ok Vestri,
+Alþjófr, Dvalinn,
+Bívörr, Bávörr,
+Bömburr, Nóri,
+Ánn ok Ánarr,
+Ái, Mjöðvitnir.
+
+Veigr ok Gandalfr,
+Vindalfr, Þráinn,
+Þekkr ok Þorinn,
+Þrór, Vitr ok Litr,
+Nár ok Nýráðr,
+- nú hef ek dverga, -
+Reginn ok Raðsviðr,
+- rétt of talða. -
+
+Fíli, Kíli,
+Fundinn, Náli,
+Hefti, Víli,
+Hannarr, Svíurr,
+Frár, Hornbori,
+Frægr ok Lóni,
+Aurvangr, Jari,
+Eikinskjaldi,
+
+- mál es dverga
+í Dvalins liði
+ljóna kindum 
+til Lofars telja
+Þeir es sóttu
+frá salar steini
+aurvangs sjöt
+til Jöruvalla.
+
+Þar vas Draupnir
+ok Dolgþrasir,
+Hór, Haugspori,
+Hlévangr, Glói,
+Skirfir, Virfir,
+Skáfiðr, Ái,
+Alfr ok Yngvi,
+Eikinskjaldi,
+Fjalarr ok Frostri,
+Finnr ok Ginnarr.
+
+Þat mun uppi,
+meðan öld lifir
+langniðja tal
+Lofars hafat."
+
+
+V. Til manns
+
+Eftir þriggja báru slag þagnar mælir mær í Völvu ham. "Það var þá at þér þótti ráð að þér beittuð óð þínum, háburði ok ávöxt ætlanna þinna svo at fólk fengir í þitt lið. Hug manna, Askur svo heitir, og hjörtu þeirra er Embla eru nefnd skulir þú vekja til verka og ná á þitt band. Laus undan örlögum voru þau og hamingjusöm og vantaði fyrir ekkert."
+
+Hann mælir
+
+"Unz þríar kvómu
+ór því liði
+öflgr ok ástkir,
+æsir at húsi,
+fundu á landi
+lítt megandi
+Ask og Emblu
+örlagalausa."
+
+Embla segir þá "Þar sáuð þér, einföldum klæða og litu ei góða. Í rólindi sinni ei þurftu þunga önd, ló né læti, þá er líf þeirra einfalt var ok heiftin þeim fjarri. Hamr þá er þeim mætti gat heift þeim veitt. Óðurinn í þér í önd þeirra kvikti. Hásæti þitt ok skuldbinding þig við þeim gaf óð, svo er skuldbinding gaf yður óðinn þinn. Þá lofaðir þú þeim lóðir, sali ok hlý klæði af dverga gæði. Svo þau hefðu nú litu góða."
+
+Lóðurr yrkir
+
+"Önd þau né óttu
+óð þau né höfðu,
+ló né læti
+né litu góða.
+Önd gaf Óðinn,
+óð gaf Hænir,
+ló gaf Lóðurr
+ok litu góða."
+
+
+Augum læsir Embla á Ask og mælir brostið. "En þegar þú maður minn reisnarlegi hefðir af óði öndina fengið, af hæni óðinn fengið ok af lóði ló ok litu góða var at ek nóg. Kyn þitt þig lofaði ok salir yðar þig höfðu í hávegum. Löf af þér sungið ok yfir þig ausað. Ættir þínar, hamr hverra í hug yðar var sá er þú kallar Æsi hældu þig í ómæli og af þér ætluðust mikils. Það var yður þó ljóst at ygg yrði þín reið ok harmur mikill. Þá er tár yðar féllu í valinn og að urði yrði bráð, þér hélduð þó höfði, tign ok reisn og yfir urðarbrunni stóðuð. Örlögunum til að mæta." 
+
+
+Askur mælir
+
+"Ask veit ek standa,
+heitir Yggdrasill.
+Hór baðmr, ausinn
+hvítauri,
+- þaðan koma döggvar,
+þærs í dala falla, -
+stendr æ yfir grænn
+Urðarbrunni."
+
+Nú litið til sjávar heldur hún áfram, ei lengr brostið. Völvan mælir. "Tók þá að þyngja á þér Yggdrasill" gjót hún þá augum skammt en snýr aftur til sjávar "þá árdaga at þér var gjör kunnt at sali yðar þú myndir erfa, ei lengur háborinn heldur brátt hæstborinn. Þá kynntist þú þeim hugverkum er nornir örlaganna eru. Þeirra bústaðr í ask þínum úr urðarbrunni yðar þær láta þig súpa úrð þína hvurn dag. Sögur þíns kyns og þinna sala, forfeðra yðar og þeirra verka. Af ættum mikilmenna og jötna erum vér komin vér háborinn, urðarbrunnur okkar rennur djúpt og ginnungar margar af honum má súpa. Af urð getur verðandi. Hvert Yggdrasill herjar, hvurs megnr hann verðr. Urðarbrunnur er það sem var, seiðr ok galdrar úr honum hafa nema smábrot og telja urðina brunnin allan. Ginnungar af sér geta ginnungar. Loks verðandi hefir komið þá at hin versta ginnung er skuld heitir tökum nær. Innan yðar, af yður, til yðar þú af minningum þíunum súpir og örlög þín dreymir. Í meðför skuldar þá lagðr þú lög á landa yðar, ákvarðaðir líf þeirra og hafðir af þeim lausn sína frá örlögum, þá er þín urðu þau."
+
+Yggdrasill, þungur á brún á ný kveðr.
+
+"Þaðan koma meyjar
+margs vitandi
+þríar ór þeim sæ,
+es und þolli stendr.
+Urð hét eina,
+aðra Verðandi,
+- skóru á skiði, -
+Skuld ena þriðju,
+-- þær lög lögðu,
+þær líf kuru
+alda börnum, --
+- örlög seggja. -"
+
+
+VI. Regn 
+
+Þá þyngist yfir Völvu ok segir "Tók svo rótum í þér þorsti í gull og gersemar. Græðgi þín jókst ok óðinn náði sínum hæðum. Verkan þín kostaði þig dýrlega og brenndir þú þig hvívetna á bræði þinni og gull þorsta. Í þrígang brenndir þú þig á græðgi þinni en ekki gastu af því lært. Mannfall þinna manna í nafni gullveigar þinnar. Þorstinn varði og var ósvalandi, óseiðandi og ekki eyðandi. Þó hafi verið reynt, oft, ósjaldan. Gullveig var æði yðar kallað og var það til þíns fyrsta morðs Váförð"
+
+Skýað hefur á himni ok land nálgast. Dropa hefur tekið létt yfir mann mikinn og hans mær. Vinnumenn fella nú segl og gera sig klára til ára.
+
+Hárr svarar nú þungur á brún á ný, þó ei svo þungur sem fyrr var
+
+"Þat man hón folkvig
+fyrst í heimi,
+es Gullveig
+geirum studdu
+ok í höll Hárs
+hána brenndu,
+þrisvar brenndu
+þrisvar borna,
+oft, ósjaldan.
+Þó hón enn lifir."
+
+
+Völva "Hugr þinn Hár, margt um knár, ei hana gat gert laust við, en af ginning rís ginning ok falskan frið. Þá óður þíns hugr henni nýjan ham gaf, sem skýr sýn til vitjar ok sigurs. Af þér sjálfum, um þig sjálfan, fyrir þig sjálfan þú sást þig sem velspáan. Beittir eigin viti göldrum og seiðum er stolið hefur ok ei skilr. Hamr hinnar illar brúðar af hug risinn, ginning gullveigar at hún Heiði sé. Seiði þú kunnir, og seiði þú leiktir þér að og varst sjálfum þér að bráð."
+
+Óðinn tekur undir
+
+"Heiði hána hétu,
+hvars til húsa kom,
+völu velspáa.
+Vitti hón ganda.
+Seið hón kunni. 
+Seið hón leikinn.
+Æ vas angan
+Illrar brúðar."
+
+
+Völva "Þat var þá er þat var um seinan, en þér þóttust en að hugr yðar myndi finna ráð úr örlögum yðar. Tóku yður þá til þanka á ný og leituðuð innra til svara. Hvort skyldi þá Alföður allt eiga, eður sjá sóma sinn í að gjalda sínar skuldir. Þá ei þína skuld, heldr þeirra. Hafi nú allir hábornir menn sína urði, verðandi ok skuld. Þá er þér hafið til vígs riðið leggur skuld anga sína." 
+
+Valföðr
+
+"Þá gengu reginn öll,
+á rökstóla,
+ginnheilög goð,
+ok of þat gættusk,
+hvárt skyldi æsir
+áfrjáð gjalda 
+eða skyldi goðin öll
+gildi eiga"
+
+
+Völvan, með blæ eilítillar vonbrigði "Óðurinn tók þig svo minn kæri at á fundi yðar ok yðar frændu var rof friðar. Ei var þat í bardaga, né yfir lendu, né fyrir neins sakir nema eigin. Esptr upp í eigin ygg og vá hafðr að bana háborinn svo ei myndir gulls þurfa gjalda. Þat var þá er þitt fyrsta morð var og félldir eigin borg. Traust þú hafir rofið er óðinn felldi hofið. Hefndum herjað ok víg var margt. Það var þá sem fallið víst fór að verða ok blasti við hið mesta stríð. Höfðu þeir náfrændr okkur hvurs hamr þér kallið Vanr, sú mikla ætt yfir yðr á vígvöllum og í beitingum seiða"
+
+
+Óðinn
+
+"Fleygði Óðinn
+ok í folk of skaut.
+Þat vas enn folkvíg
+fyrst í heimi.
+Brotinn var borðveggr
+borgar ása.
+Knóttu vanir vígspoð
+völlu sporna."
+
+
+"Þá varð að enn einu þakamóti míns herra. 
+
+"Þá gengu reginn öll
+á rökstóla.
+ginnheilög goð,
+ok af þat gættusk,
+hverir hefði loft allt
+Lævi blandit
+eða ætti jötuns
+Óðs mey gefna."
