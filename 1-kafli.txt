@@ -336,7 +336,7 @@ Lævi blandit
 eða ætti jötuns
 Óðs mey gefna."
 
-
+## Talar um hvernig hann lét reiðina taka yfir
 
 "Þórr einn þar vas
 þrunginn móði.
@@ -348,6 +348,8 @@ möl öll meginlig,
 es á meðal fóru."
 
 
+## Nú talar hann og hún fer með spánna. Hann fer að lýsa því hvernig hegðun hans birtist öðrum (sérstaklega henni er sá allt) í ítarlegu máli, enda laus við blekkingar á þessum tíma. Talar um þegar hann helgar sjálfan sig í eigin geðveiki og heimsyfirráði
+
 
 "Veit hón Heimdallar
 hljóð of folgit
@@ -358,6 +360,8 @@ helgum baðmi.
 af veði Valföðrs.
 Vituð ér enn eða hvat?"
 
+
+## Segir frá því þegar hann fann hana verandi í vondu skapi yfir baktali hennar en hún lagði honum þá línurnar um hvernig drykkja mímisbrunns hefur blindað hann af ginning og að hann sé bara að spinna sjálfum sér sögu um sig og stöðu sína í heiminum og haga sér eftir henni með skelfilegum afleiðingum.. spyr reglulega hvort hann sé að fatta hvað hann er í raun og veru fyrir öðrum í heiminum og hvernig innri sagan hans er sjálfs gabb
 
 
 "Ein sat hón úti,
@@ -375,7 +379,7 @@ morgin hverjan
 af veði Valföðrs.
 Vituð ér enn eða hvat?"
 
-
+## Talar um hvernig hann baðaði hana í gjöfum og gersemum, væntanlega til að þagga í henni yfir hræðilegri hegðun hans
 
 "Valði henni Herföðr
 hringa ok men,
@@ -384,7 +388,7 @@ hringa ok men,
 sá hón vítt ok of vítt
 of veröld hverja. -"
 
-
+## Segir frá því hvernig þeir munir komu allir til, hvernig hans sjálfskapaða skuld sendir menn í valinn og hverskonar hernað hann hefur herjað til að eignast þeirra dýru muni
 
 "Sá hón Valkyrjur
 vítt of komnar,
@@ -399,6 +403,7 @@ görvar at ríða
 grund valkyrjur."
 
 
+## Talar um hvernig blindni hans leyfði sannleikanum að drepa sakleysið hans því þrátt fyrir allt það sem hann gerði til að reyna að vernda sakleysi sitt og sannfæra sjálfan sig um að hann væri í raun góður maður gat hann ekki komið í veg fyrir mýkt sannleikans (mögulega frá henni kominn, embla mistilteinn)
 
 "Ek sá Baldr,
 blóðgum tívur,
@@ -410,6 +415,7 @@ mjór ok mjök fagr
 mistilteinn."
 
 
+## Talar um hvernig það fór, og hversu sárt hún tók því þegar hún sá sakleysi hann hafa dáið
 
 "Varð af þeim meiði,
 es mær sýndisk,
@@ -420,7 +426,7 @@ en Frigg of grét
 vóð Valhallar.
 Vituð ér enn eða hvat?"
 
-
+## almennileg lýsing á því hverngi það athafnaðist andlega
 
 "-- Baldrs bróðir vas
 of borinn snimma,
@@ -431,7 +437,7 @@ né höfuð kembði,
 áðr á bál of bar
 Baldrs andskota, --"
 
-
+## Hann reynir að afneita sannleikanum og grafa hann, og kona hans reynir að vernda hann frá hrolli sannleikans og passar hann. Loki rís ávalt þar sem mótsagnir eru og fastur hamur hættir að virka, enda er hann hamlaus, sannleikur, er lýkur öllum lygum. En Óðinn reynir að hafna honum
 
 "Haft sá hón liggja
 undir hvera lundi,
@@ -443,7 +449,7 @@ ver vel glýjuð.
 Vituð ér enn eða hvat?"
 
 
-
+## Rán, Rupl og níð
 
 "Ó fellr austan
 of eitrdala
@@ -459,7 +465,7 @@ bjórsalr jötuns,
 en sá Brimir heitir."
 
 
-
+## Lýsir hversu erfitt það er að reyna að viðhalda valdi óðins
 
 "Sal sá hón standa
 sólu fjarri
@@ -471,7 +477,7 @@ Sá es undinn salr
 orma hryggjum."
 
 
-
+## Skömm og hatur og illvirki, morð og allskonar hræðilegt sem hann gerir (endur túlkun á fyrri hlutanum þegar brennir þrisvar og allt það)
 
 "Sá hón þar vaða
 þunga strauma
@@ -484,7 +490,7 @@ nái framgengna.
 Sleit vargr vera.
 Vituð ér enn eða hvat?"
 
-
+## Ástandið verður æi erfiðara og innri reiði og hatur farið að byggjast upp í fenrisúlfi og mun á endanum verða geðveikinni að bana, barn þess sannsögla.
 
 "Austr sat en aldna
 í járnviði
@@ -496,6 +502,7 @@ tungls tjúgari
 í trolls hami."
 
 
+## Minningar af förum þínum að hrella þig og hræra í höfðinu á þér svo allt virtist svart og allir á móti þér, þó svo væri ekki
 
 
 "Fyllisk fjörvi
@@ -507,7 +514,7 @@ of sumur eftir,
 veðr öll válynd.
 Vituð ér enn eða hvat?"
 
-
+## Á hápunkti sastu innan um blóðugan vígvöllin, umkringdur þinni verkann í nafni enskis og lékst á hörpu, og reyndr að fela hvurs brotinn þér væruð að innan
 
 "Sat þar á haugi
 ok sló hörpu
@@ -518,7 +525,7 @@ Gól of hónum
 fagurrauðr hani,
 sá es Fjalarr heitir."
 
-
+## Hvernig þú lofaðir mönnum gull og girsemar til að falla fyrir þig í bardaga. Þegar hann blæs óð í Ask og Emblu og lofar þeim lendur og svona.
 
 "Gól of ósum
 Gullinkambi,
@@ -530,7 +537,7 @@ sótrauðr hani
 at sölum Heljar."
 
 
-
+## Ástandið er óstöðugt og hann brotnar reglulega niður þegar hann er ekki meðal fólks eða bara með konu sinni, að hníga undir álagi og þrýstingi sem er að mestu ímyndaður og ekki að utan kominn, engin að ætlast til þess af honum sem hann heldur að hann þurfi að gera nema hann sjálfur.
 
 "Geyr Garmr mjök
 fyr Gnipahelli.
@@ -542,7 +549,7 @@ of ragna rök, --
 römm sigtíva."
 
 
-
+## Í afneitun sinni drepur hann Vanir á fundi, og er bara almenn heljarinnar óreiða, nú er óðurinn að ná hæðum sínum
 
 "Bræðr munu berjask
 ok at bönum verða,
@@ -558,7 +565,7 @@ Mun engi maðr
 öðrum þyrma."
 
 
-
+## Hans hreina sjálf, ýmir fer að brjótast út, ýta geggn yggdrasill, rífst við mími sem blekkir hann ítrekað því nú er síðasta sjálfvarið heimdallr búnað láta í sér heyra, heimsmyndin er að brotna endanlega
 
 "Leika Mímis synir,
 en mjötuðr kynndisk
@@ -574,7 +581,7 @@ Skelfr Yggdrasils
 askr standandi."
 
 
-
+## Sannleikurinn reynir enna ð brjótast út
 
 "Geyr Garmr mjök
 fyr Gnipahelli.
@@ -586,7 +593,7 @@ of ragna rök, --
 römm sigtíva."
 
 
-
+## Allt mannfallið sem hvílur á herðum hans í formi naglfars, Loki sannsögli, ginningin sem nærir sig sjálfa og heldur heiminum saman hættir að sinna hlutverkinu, það myrkvar yfir honum og hann brotnar niður
 
 "Hrymr ekr austan,
 hefisk lind fyrir.
@@ -597,7 +604,7 @@ en ari hlakkar,
 slítr nái neffölr.
 Naglfar losnar."
 
-
+## Sannleikurinn hellist yfir hann og Loki hryndir af stað þeim innri þankagang sem þarf til að komast úr bindingum ginningar 
 
 "Kjóll ferr austan,
 - koma munu múspells
@@ -609,7 +616,7 @@ með freka allir.
 býleifts í för."
 
 
-
+## Hamr sem hann hefur varpað á aðra og flokkar sem hann hefur gert bresta og leysast upp. skýrir betur hvernig það er allt fólk sem hinn óði veitir eiginleika út frá eigin sjálfsblekkingu
 
 "Hvat es með ósum?
 Hvat es með ölfum?
@@ -621,7 +628,7 @@ veggbergs vísi.
 Vituð ér enn eða hvað?"
 
 
-
+## Ástin sigrar allt... 
 
 "Surtr fer sunnan
 með sviga lævi.
@@ -632,7 +639,7 @@ en gífr rata.
 Troða halir helveg,
 en himinn klofnar."
 
-
+## hvernig það lítur út í höfðinu á honum, meðan hann sennilega situr í myrku herbergi og vinnur úr því hver hann er og hvað hefur gert
 
 
 "Þá kömr Hlínar
@@ -643,7 +650,7 @@ en bani Belja,
 bjartr, at Surti,
 - þá mun Friggjar falla angan, - týr."
 
-
+## etc.
 
 "Þá kömr enn mikli
 mögr Sigföðr,
@@ -670,6 +677,7 @@ Viðars niðja."
 
 #### END
 
+## Hvaða ginningar verða undir í sjálfskoðuninni
 
 "Þá kömr enn mæri
 mögr Hlöðynjar.
@@ -684,7 +692,7 @@ Fjörgynjar burr
 neppr frá naðri
 níðs ókvíðnum."
 
-
+## Hvernig hann hefur misst alla tengingu við heiminn og sinn skilning á honum, hvað er satt og hvað ekki, hann hefur lifað í svo rugluðum hugar heim svo lengi að hann getur varla nefnt aftur stjörnur, og sól, finnur bara fyrir henni skína á hann að ofan. Hreinn hiti á kaldri stundu, rétt eins og þegar Ýmir reis í honum fyrst.
 
 # Þegar siglt er af stað erum við hér.
 "Sól tér sortna.
@@ -696,7 +704,7 @@ við aldrnara.
 Leikr hór hiti
 við himin sjalfan."
 
-
+## Ferðin þeirra frá skandinavíu og til íslands, sem er að taka enda á meðan þessi saga er að gerast. Sagan byrjar á þessari senu.
 
 # Sagan byrjar svo hér
 "Sér hón upp koma
@@ -709,6 +717,7 @@ sá es á fjalli
 fiska veiðir."
 
 
+## Hér tekur hún aftur yfir frásögnina og hann fer með kvæðin þar sem hún segir honum frá hvernig tímarnir framundan líta út
 
 "Finnask æsir
 á Iðavelli
@@ -717,7 +726,7 @@ máttkan dæma
 ok ó fimbultýs,
 fornar rúnar."
 
-
+## Hér verða líka leikir og pólitík og frændr til að leika við eins og í gamla daga, þó þurfi ekki að láta óðinn taka völdin
 
 "Þar munu eftir
 undrsamligar
@@ -727,7 +736,7 @@ gullnar töflur
 áttar höfðu."
 
 
-
+## Finna nýtt land og líf. Sakleysið hans snýr aftur og tekur sér sæti í honum miðjan. Hann finnur innri frið
 
 "Munu ósánir
 akrar vaxa.
@@ -739,7 +748,7 @@ vel valtívar.
 Vituð ér enn eða hvað?"
 
 
-
+## Svo finnur hann tign og byggir land með bræðrum sínum etc.
 
 "Þá kná Hænir,
 - hlaut við kjósa, -
@@ -749,7 +758,7 @@ vindheim víðan.
 Viðtuð ér enn eða hvat?"
 
 
-
+## Salin þeirra sem þau ætla að búa í og góðu stundirnar sem þar verða
 
 "Sál sér hón standa,
 sólu fegra,
@@ -764,6 +773,8 @@ ynðis njóta."
 #### Alls ekki Hauksbók 57 þar sem guð almáttugur er kynntur til sögunnar og reynir að binda Ask örlögum aftur og skapa óðinn á ný!
 
 
+## En áminning á að allt skilur eitthvað eftir sig og mun hann ekki gleyma þeim sem hann felldi og skömmin alltaf vera til staðar, en það er nóg að vita af því og leyfa vísunni nú að leggja sig og ígrunda lærdómin af því að lesa hana eða heyra.
+
 "Þar kömr enn dimmi
 dreki fljúgandi,
 naðr fránn, neðan
@@ -776,6 +787,8 @@ Nú mun hón sökkvask."
 
 
 
+
+## Landað, Völvan talar við Breka, staðgengil lesanda um að Völuspá sé gamalt kvæði sem er hægt að finna allskonar merkingu í. Það sé ekki beint saga þessa manns, þá er það saga manna sem mistaka sína heimsmynd fyrir heimin allan, sem eru bundnir örlögum og geta orðið óði að bráð. Hvernig það getur farið og hvernig það gerist þegar við blindumst af eigin sannfæringu svo mikið að við ekki sjáum það sem öðrum er ljóst. Hvernig það sé best að lifa einfaldara lífi og alls ekki láta sér neitt eins hættulegt og örlög grípa sig. 
 
 #### Loka kvæði Völvunnar til vinnumannsins eftir samtal þeirra um ákveðin gæði völuspáar og margtúlkanleika
 
